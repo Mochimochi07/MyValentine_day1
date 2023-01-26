@@ -11,7 +11,7 @@ i wanted to use react for this but deploying a react would be a hassle.
 i wanted to use this as a collection for Daj Tech landing page.
 
 
-I know its not february but i want to take a few day off from coding.
+I know its not february but i want to take a few day off from coding for 2 days. 
 
 And the second challenge may take 3 days to code so i will be interrupting the start of the day.
 
