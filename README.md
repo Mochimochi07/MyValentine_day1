@@ -15,10 +15,17 @@ I know its not february but i want to take a few day off from coding.
 
 And the second challenge may take 3 days to code so i will be interrupting the start of the day.
 
-Im not a designer by the way so it would really take time to make those things.
+Im not a designer by the way so it would really take time for me to make those things.
+
+I used Pexels and youtube.
 
 
-The music is from my favorite kdrama couple.
+The music is from one of my favorite kdrama couple.
+
+
+Credits to Lisa Fotios for the video.
+
+https://www.pexels.com/@fotios-photos/
 
 Credits to the real composer and to R3 in youtube.
 
